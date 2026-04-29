@@ -1,4 +1,4 @@
-
+updated enter brainrot heads Scripts offers the most advanced enter brainrot heads Script, with auto-heal and speed. Perfect for dominating any match.
 
 
 
